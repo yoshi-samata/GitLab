@@ -12,7 +12,7 @@
 
 👤 **Joshua Martin**  
 👤 **Gerald Oden**  
-👤 **Uchiha.dev**  
+👤 **Kenneth Smith**  
 
 These individuals have contributed significantly to the project. Thanks for your efforts! 🎉
 
